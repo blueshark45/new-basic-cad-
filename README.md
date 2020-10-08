@@ -89,6 +89,25 @@ cvilleschools.onshape.com/documents/fd28987521501fb9ad424d00/w/b4a8421e9bbbce73e
 ### refletion 
 this was my fifth onshape part that [i got a bit of help from the dr.sheld videos] and form the page on which i look at on canvas (cvilleschools.instructure.com/courses/31056/assignments/262734?module_item_id=815324)(youtube.com/watch?v=DbOjDNK8Nsk)
 
+## axle 
+
+### discription 
+small cyleder that is 10mm and 60 mm long with a 10mm cut on top of the cylnder and than a collar on the cylnder that is 15 mm wide on the outside of the cylnder 
+
+### image 
+
+### reflection 
+
+
+## big bearing 
+
+### discription 
+
+### image 
+
+### reflection 
+
+
 
 
 
