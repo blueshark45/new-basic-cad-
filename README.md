@@ -103,6 +103,16 @@ and the b
 ### reflection 
 this was my 6th,7th and 8th parts made in onshape and i got [though it with dr.shelds videos](youtube.com/watch?v=2r7YqGuF1vY)
 
+## sub assembly 
+
+### discrpiotion 
+
+### evidence 
+
+### image 
+
+### reflection 
+
 
 
 
