@@ -106,13 +106,16 @@ this was my 6th,7th and 8th parts made in onshape and i got [though it with dr.s
 ## sub assembly 
 
 ### discrpiotion 
+assebly of wheel and axle also some baring together.
 
 ### evidence 
+cvilleschools.onshape.com/documents/75805611fada9597a3175b6c/w/ce40489caad4e7aecbc3ca71/e/98ec6f60dfffc4e30f228195
 
 ### image 
+![Screenshot 2020-10-13 at 4.14.16 PM.png](images/Screenshot 2020-10-13 at 4.14.16 PM.png)
 
 ### reflection 
-
+this is my first part of assembling my parts together with [the help of dr.shelds videos](https://www.youtube.com/watch?v=R4PDBd8H5h8&feature=emb_title)
 
 
 
