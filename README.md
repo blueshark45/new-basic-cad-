@@ -121,13 +121,16 @@ this is my first part of assembling my parts together with [the help of dr.sheld
 ## final assembly 
 
 ### decription 
+the assembly or constuction of the caster useing all the part made before and for the caster 
 
 ### evidence 
+cvilleschools.onshape.com/documents/2158aadebbf897ecbf7d2294/w/ce86e3fe65b8330d96b95b6b/e/822bb019eb9d4c4fb318a1e1
 
 ### image 
 
-### reflection 
 
+### reflection 
+this was my creation and buliding of the caster and product [while being help by dr.shelds](youtube.com/watch?v=orcp-asikM4&feature=emb_title)
 
 
 
