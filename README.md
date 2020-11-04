@@ -127,7 +127,7 @@ the assembly or constuction of the caster useing all the part made before and fo
 cvilleschools.onshape.com/documents/2158aadebbf897ecbf7d2294/w/ce86e3fe65b8330d96b95b6b/e/822bb019eb9d4c4fb318a1e1
 
 ### image 
-
+![Screenshot 2020-11-04 at 4.30.42 PM.png](images/Screenshot 2020-11-04 at 4.30.42 PM.png)
 
 ### reflection 
 this was my creation and buliding of the caster and product [while being help by dr.shelds](youtube.com/watch?v=orcp-asikM4&feature=emb_title)
