@@ -132,5 +132,34 @@ cvilleschools.onshape.com/documents/2158aadebbf897ecbf7d2294/w/ce86e3fe65b8330d9
 ### reflection 
 this was my creation and buliding of the caster and product [while being help by dr.shelds](youtube.com/watch?v=orcp-asikM4&feature=emb_title)
 
+## square thingy 
+
+### decription 
+cube is 20 by 20 each side and has centered cyleders on 4 sides all alined with the middle of the square and origin 
+
+### evidence 
+cvilleschools.onshape.com/documents/437b9f6e9444c10bd84de0a6/w/12f62ae1b228677e80157a83/e/e7d44c5028de884bb850c588
+
+### image 
+![Screenshot 2020-11-06 at 12.57.23 PM.png](image/Screenshot 2020-11-06 at 12.57.23 PM.png)
+
+### reflection 
+this was a challagne onshape and with the instructions i was able to do so 
+
+## spinner shaft
+
+### decription
+
+main cylerder is 30 in diameter and 50 tall while the small is 20 in dimeter and 50 in leghth the rest is a cut in the middle and sides to get a rectangle shape and fittelted and holes in the mid that are 8 in dimeter and ten from top  and cut from the rectangle on each retangle and allined. 
+
+### evidence 
+cvilleschools.onshape.com/documents/437b9f6e9444c10bd84de0a6/w/12f62ae1b228677e80157a83/e/89b9519a2562d07f14d1f36b
+
+### image 
+![Screenshot 2020-11-06 at 12.57.12 PM.png](image/Screenshot 2020-11-06 at 12.57.12 PM.png)
+
+### reflection 
+this  was another part of the challenge on onshape and helped by the instruction on cavas 
+
 
 
